@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with high-frequency MEV Bot for birdeye sniper bot | low-cap-gem-detection & blockchain-scanning, the #1 birdeye sniper bot. Includes low-cap-gem-detection
 
 
 
